@@ -7,3 +7,4 @@
 -🖥️ My PC is  currently running Windows 11
 -I am from 🇹🇷
 -I know English, Japanese, and Russian
+Sorry for formatting issues 
