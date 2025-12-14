@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @alperfix
-- 👀 I’m interested in coding,programming,animation,digital art,music
-- 🌱 I’m currently learning Visual C+
--   I’m looking to collaborate with Tim cook
+- 👀 I’m interested in coding, programming, a animationdigital a and  rt, and  music
+- 🌱 I’m currently learning Visual C++
+-   I’m looking to collaborate with No one LMAO
 - 📫 How to reach me alperfix2015@courvix.com
                       alperfix@gmail.com
--🖥️ My PC currently running Windows 11
--i am from 🇹🇷
--i know english,japaneese,russian
+-🖥️ My PC is  currently running Windows 11
+-I am from 🇹🇷
+-I know English, Japanese, and Russian
